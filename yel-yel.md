@@ -87,5 +87,5 @@ ulang 2x
 Kami datang lagi\
 Cata dua lima\
 Lantang ku bernyanyi\
-Menanglah kembali\
+Datanglah kembali\
 Oooooo 4x
