@@ -89,3 +89,54 @@ Cata dua lima\
 Lantang ku bernyanyi\
 Menanglah kembali\
 Oooooo 4x
+
+
+## **Diklat 4**
+
+#### Panjang
+Sudah kubilang jangan lawan Unit 1
+Sekarang kamu merasakan akibatnya\
+Harusnya kamu diam di rumah saja\
+DUduk yang manis nonton di layar kaca
+
+Siapa yang suruh\
+Lawan Unit 1\
+Siapa yang suruh\
+Lawan Unit 1
+
+#### Pendek 1
+Siapa kita?\
+Unit 1
+Siapa kita?\
+Unit 1\
+Siapa kita?\
+Unit 1\
+HIIIIII
+
+#### Pendek 2
+Kami ksr unit 1\
+Relawan yang perkasa\
+Tangguh bermental baja\
+Di kota ki jayaaaaaaa
+
+Kami ksr unit 1\
+Relawan markas kota\
+Terlatih dan terdidik\
+Kiblat seluruh unit
+
+#### Tambahan
+Rambate ratahayu tarik tambang\
+Di sini kami jadi tambah senang\
+Andaikan aku burung aku akan terbang\
+Tapi sebentar lagi jadi KSR\
+bangun pagi-pagi menuju ke lapangan\
+Untuk mengikuti pelatihan palang merah\
+Betapa rasanya ingin segera pulang\
+Tapi pelatihan belum usai\
+Mau makan jalan jongkok\
+Habis makan lompat kodok\
+'Ku dicaci, dimaki dan dibentak-bentak\
+Wahai operasionalku, betapa baik dirimu\
+Wahai operasionalku, betapa jeli matamu\
+Tidakkah kau tahu apa isi hatiku\
+Ku Cinta padamu, ku sayang padamu, kubilang I love you
