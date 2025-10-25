@@ -73,7 +73,7 @@ Oh KSR yang kutunggu, kutunggu\
 Kunanti-nanti, (cewe: e e e aa)\
 Telah lama ku berdiri, berdiri\
 Kunanti-nanti, (cewe: e e e aa)\
-Bila Cata menang lagi\
+Bila Cata datang lagi\
 Ku gembira syalalalala\
 Ku kan slalu bersamamu\
 Selamanya
@@ -87,7 +87,7 @@ ulang 2x
 Kami datang lagi\
 Cata dua lima\
 Lantang ku bernyanyi\
-Menanglah kembali\
+Datanglah kembali\
 Oooooo 4x
 
 
